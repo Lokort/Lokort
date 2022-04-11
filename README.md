@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lokort
-- 👀 I’m interested in brawl stars dudka servers
+- 👀 I’m interested in Classic Brawl copying and srittensro
 - 🌱 I’m currently learning srython
 - 💞️ I’m looking to collaborate on LFBRAWL
 - 📫 How to reach me: discord Lokort#0001
